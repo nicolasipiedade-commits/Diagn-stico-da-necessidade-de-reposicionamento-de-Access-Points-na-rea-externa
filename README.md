@@ -1,0 +1,1 @@
+# Diagn-stico-da-necessidade-de-reposicionamento-de-Access-Points-na-rea-externa
